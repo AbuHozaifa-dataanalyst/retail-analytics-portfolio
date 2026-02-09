@@ -1,1 +1,1 @@
-# retail-analytics-portfolio
+# RETAIL ANALYTICS PORTFOLIO
